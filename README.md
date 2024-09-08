@@ -11,7 +11,7 @@
 
 - 💬 Ask me about **react, and python.**
 
-- 📫 How to reach me **ssgarrido1994@gmail.com**
+- 📫 How to reach me **sadmave@outlook.com**
 
 - ⚡ Fun fact **I climb trees passionately.**
 
